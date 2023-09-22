@@ -1,0 +1,1 @@
+# Harjutus_10
